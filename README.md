@@ -10,5 +10,5 @@ _*Americana, São Paulo, Brasil*_
 - [Twitter](https://twitter.com/lukasu96)
 - [Linkedin](https://www.linkedin.com/in/lucas-henriquqe-de-lima-alves-527280180/)
 
-![1520886847_CSGO-Logo](https://user-images.githubusercontent.com/42223676/61918775-0db50d80-af29-11e9-9566-9fef4f92bee8.png)![black-desert-online-89](https://user-images.githubusercontent.com/42223676/61918776-0f7ed100-af29-11e9-8486-ab98194cf130.jpg)
+!![iconfinder_No_entry_131984](https://user-images.githubusercontent.com/42223676/61919028-3d184a00-af2a-11e9-8e79-72de860e0771.png)![iconfinder_Alarm_132034](https://user-images.githubusercontent.com/42223676/61919030-3e497700-af2a-11e9-847a-ed2beaf84556.png)![iconfinder_Plus_131978](https://user-images.githubusercontent.com/42223676/61919033-3f7aa400-af2a-11e9-8017-4677754f14c6.png)![iconfinder_TV_v2_132044](https://user-images.githubusercontent.com/42223676/61919034-40abd100-af2a-11e9-9368-550236807334.png)![iconfinder_Games_131989](https://user-images.githubusercontent.com/42223676/61919035-41dcfe00-af2a-11e9-9726-c091c5784925.png)
 
