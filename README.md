@@ -7,6 +7,6 @@
 _*Americana, São Paulo, Brasil*_
 
 ## Redes Sociais
-- [Twitter] https://twitter.com/lukasu96
-- [Linkedin] https://www.linkedin.com/in/lucas-henriquqe-de-lima-alves-527280180/
+- [Twitter](https://twitter.com/lukasu96)
+- [Linkedin](https://www.linkedin.com/in/lucas-henriquqe-de-lima-alves-527280180/)
 
